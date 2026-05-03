@@ -1,9 +1,2 @@
 "# sam12" 
- K k kSKks S
-  MQM M D m m m m m dm 
-vmmlfmsl
- eefe
-eeeww
- ewdd
- e
-e
+Delete kr diya🤣
